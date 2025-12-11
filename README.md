@@ -1,1 +1,1 @@
-![](https://i.pixiv.re/img-original/img/2025/08/29/11/15/07/134452869_p0.png)
+![Pixiv Artwork 134452869](https://raw.githubusercontent.com/GeekBookx/NFS17/refs/heads/main/134452869_p0.webp)
