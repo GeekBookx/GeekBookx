@@ -1,2 +1,1 @@
-![](https://github-readme-stats.vercel.app/api?username=GeekBookx&show_icons=true&theme=dark&count_private=true)
-![](https://activity-graph.herokuapp.com/graph?username=GeekBookx&theme=github)
+![](https://i.pximg.net/img-original/img/2025/08/29/11/15/07/134452869_p0.png)
